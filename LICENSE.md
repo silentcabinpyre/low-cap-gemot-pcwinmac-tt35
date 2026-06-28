@@ -1,4 +1,4 @@
-# 
+# Automatic low cap gem sniper bot workflow for Mac OS | Ultimate low cap gem sniper bot workflow for PC Windows. Featuring risk assessment and market orders — optimized for maximum performance on every platform.
 
 
 
